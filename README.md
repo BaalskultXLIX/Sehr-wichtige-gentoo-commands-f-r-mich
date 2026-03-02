@@ -1,1 +1,1 @@
-# Sehr-wichtige-gentoo-commands-f-r-mich
+# Sehr-wichtige-gentoo-commands-für-mich
