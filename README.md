@@ -1,0 +1,1 @@
+# Sehr-wichtige-gentoo-commands-f-r-mich
